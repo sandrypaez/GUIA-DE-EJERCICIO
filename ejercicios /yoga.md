@@ -38,3 +38,11 @@ Existen varios estilos de yoga, desde el suave Hatha Yoga hasta el dinámico Vin
 ⏳ Duración: 15-60 minutos.
 ✅ Secuencia: Comienza con respiración → Posturas → Relajación final.
 
+# CONSEJOS 
+🔹 Empieza con posturas sencillas y avanza progresivamente.
+🔹 Practica en un lugar tranquilo y sin distracciones.
+🔹 Usa ropa cómoda y una esterilla antideslizante.
+🔹 No te exijas demasiado, escucha tu cuerpo.
+🔹 Respira profundamente y con conciencia durante toda la práctica.
+🔹 Sé constante, con 2-3 sesiones semanales notarás beneficios.
+🔹 Finaliza cada sesión con relajación y meditación.
