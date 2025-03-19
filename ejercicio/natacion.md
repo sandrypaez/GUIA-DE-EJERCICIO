@@ -14,6 +14,22 @@ Se puede practicar en piscinas, lagos, ríos o el mar, y es ideal tanto para el 
 ✔️ Quema calorías y favorece la pérdida de peso.
 ✔️ Aumenta la coordinación y el equilibrio.
 
+# CÓMO REALIZAR NATACIÓN?
+1. Conoce los estilos básicos:
+✅ Crol (estilo libre): Movimiento alterno de brazos y patadas rápidas.
+✅ Espalda: Similar al crol, pero flotando boca arriba.
+✅ Braza (pecho): Movimiento circular de brazos y patadas en rana.
+✅ Mariposa: Movimiento simultáneo de brazos y patada de delfín (requiere más fuerza y técnica).
+
+2. Aprende a respirar correctamente:
+🔹 Exhala bajo el agua y toma aire cuando saques la cabeza.
+🔹 Coordina la respiración con los movimientos para no fatigarte rápido.
+
+3. Planifica tu entrenamiento:
+⏳ Principiante: Nada de 15 a 30 minutos con pausas.
+⚡ Intermedio: Aumenta la distancia y mejora la técnica.
+🔥 Avanzado: Entrena resistencia, velocidad y técnicas avanzadas.
+
 
 
 
