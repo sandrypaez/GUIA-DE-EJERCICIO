@@ -31,3 +31,13 @@ El ciclismo es un deporte y una forma de ejercicio en la que se usa una biciclet
 ✔️ Ropa cómoda y transpirable.
 ✔️ Guantes y gafas (opcional, pero útil para comodidad y protección).
 ✔️ Luces y reflectantes si pedaleas de noche.
+
+# CONSEJOS PARA MEJORAR EN EL CICLISMO
+🔹 Mantén una buena postura: Espalda recta y manos relajadas en el manillar.
+🔹 Hidrátate bien: Bebe agua antes, durante y después del recorrido.
+🔹 No te sobreexijas: Aumenta la intensidad progresivamente.
+🔹 Varía tu ruta y velocidad: Alterna entre terrenos planos y subidas para mejorar tu rendimiento.
+🔹 Respeta las normas de tránsito: Si pedaleas en la calle, usa ciclovías y señales de seguridad.
+🔹 Cuida tu alimentación: Consume carbohidratos y proteínas para mantener la energía.
+🔹 Revisa tu bicicleta regularmente: Chequea frenos, llantas y cadena para evitar accidentes.
+
