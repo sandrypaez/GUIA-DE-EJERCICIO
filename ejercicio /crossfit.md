@@ -33,3 +33,11 @@ Se realiza en un box (gimnasio especializado en CrossFit) y los entrenamientos c
 💪 Intermedio: Aumenta la intensidad y técnica.
 🔥 Avanzado: Completa entrenamientos con pesos y tiempos exigentes.
 
+# CONSEJOS PARA ENTRENAR CROSSFIT DE FORMA SEGURA
+🔹 Empieza con un coach certificado para aprender la técnica correcta.
+🔹 Escucha a tu cuerpo y evita sobreexigirte para prevenir lesiones.
+🔹 Prioriza la técnica sobre la velocidad o peso.
+🔹 Hidrátate y aliméntate bien antes y después del entrenamiento.
+🔹 Descansa lo suficiente, ya que el CrossFit es intenso y el cuerpo necesita recuperación.
+🔹 No compares tu progreso con otros, mejora a tu propio ritmo.
+🔹 Usa equipo adecuado, como zapatillas de entrenamiento y muñequeras si levantas peso.
