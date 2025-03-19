@@ -59,6 +59,52 @@ El boxeo no es solo golpear, sino moverse correctamente.
 💪 Sparring (con compañero): Simula un combate real (cuando tengas más experiencia).
 💪 Saltos de cuerda: Mejora el juego de pies y la resistencia.
 
+# CONSEJOS Y PRECAUCIONES 
+✅ CONSEJOS PARA MEJORAR EN EL BOXEO
+1. Domina la postura y guardia
+🔹 Mantén siempre las manos arriba protegiendo tu rostro.
+🔹 Mantén el mentón ligeramente abajo para evitar golpes directos.
+🔹 Mantente ligero sobre los pies, nunca rígido ni plano.
+
+2. Aprende a moverte bien
+🔹 Usa el juego de pies para moverte con rapidez.
+🔹 No cruces los pies al desplazarte.
+🔹 Controla la distancia con tu oponente.
+
+3. Usa la respiración adecuada
+🔹 Exhala rápido cada vez que lances un golpe.
+🔹 No contengas la respiración, te cansarás más rápido.
+
+4. Prioriza la técnica sobre la fuerza
+🔹 No se trata de golpear fuerte, sino de golpear bien.
+🔹 Enfócate en la velocidad y precisión antes de buscar potencia.
+
+5. Entrena con disciplina
+🔹 Practica sombra (shadowboxing) para perfeccionar la técnica.
+🔹 Usa el saco de boxeo para mejorar potencia y resistencia.
+🔹 Haz sparring solo cuando te sientas listo y bajo supervisión.
+
+⚠️ PRECAUCIONES PARA EVITAR LESIONES
+1. Usa equipo de protección
+🛑 Siempre usa vendas y guantes para proteger tus manos y muñecas.
+🛑 Si haces sparring, usa casco y protector bucal.
+
+2. Calienta y estira antes de entrenar
+🛑 Un buen calentamiento evita desgarros y lesiones musculares.
+🛑 Estira después de entrenar para mejorar la recuperación.
+
+3. No bajes la guardia
+🛑 Aunque estés atacando, siempre regresa las manos a la defensa.
+🛑 Un descuido puede costarte un golpe fuerte.
+
+4. Evita golpes innecesarios
+🛑 Si haces sparring, no te sobreexijas ni te expongas a golpes duros si aún no tienes experiencia.
+🛑 Aprende a esquivar y bloquear antes de enfocarte en el ataque.
+
+5. No entrenes hasta el agotamiento extremo
+🛑 La fatiga reduce los reflejos y aumenta el riesgo de lesiones.
+🛑 Si sientes mareo, fatiga extrema o dolor, detente y descansa.
+
 
 
 
