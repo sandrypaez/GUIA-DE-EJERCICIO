@@ -33,3 +33,12 @@ Se puede practicar en el suelo con una colchoneta (Pilates Mat) o con máquinas 
 🔹 Plank: Fortalece core, brazos y piernas.
 🔹 Bridge: Eleva la cadera para fortalecer glúteos y espalda baja.
 
+# CONSEJOS PARA MEJORAR EN PILATES
+🔹 Empieza con clases guiadas para aprender la técnica correcta.
+🔹 Concéntrate en la respiración para mejorar la oxigenación y el control del movimiento.
+🔹 Mantén una buena postura en cada ejercicio.
+🔹 No fuerces los movimientos, la flexibilidad y fuerza mejoran con el tiempo.
+🔹 Usa ropa cómoda y ajustada para mayor libertad de movimiento.
+🔹 Sé constante, con 2-3 sesiones por semana notarás mejoras.
+🔹 Escucha a tu cuerpo y adapta los ejercicios según tu nivel.
+
