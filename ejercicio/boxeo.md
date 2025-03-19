@@ -22,7 +22,42 @@ El boxeo es un deporte de combate en el que dos oponentes luchan usando únicame
 
 En general, el boxeo es un deporte completo que aporta tanto a la salud física como al bienestar mental. 🔥🥊
 
+# INSTRUPCIONES DE COMO BOXEAR 
+1. Posición de Guardia
+La postura es clave para mantener el equilibrio y protegerse.
 
+✅ Pies separados a la anchura de los hombros.
+✅ Pie dominante atrás: Si eres diestro, el pie derecho va atrás; si eres zurdo (guardia zurda), el izquierdo.
+✅ Rodillas ligeramente flexionadas.
+✅ Manos arriba protegiendo el rostro: Codos cerca del cuerpo, puños al nivel de la barbilla.
+✅ Mentón abajo y mirada al frente.
+
+2. Movimientos Básicos
+El boxeo no es solo golpear, sino moverse correctamente.
+
+🔄 Desplazamiento: Mantente ligero sobre los pies y mueve un pie a la vez.
+➡️ Avanza con el pie delantero y arrastra el trasero.
+⬅️ Retrocede con el pie trasero primero.
+↔️ Movimiento lateral: Muévete sin cruzar los pies.
+
+3. Golpes Básicos
+🥊 Jab (Directo con la mano delantera): Golpe rápido y recto para medir distancia y marcar el ritmo.
+🥊 Cross (Recto con la mano trasera): Golpe fuerte y directo con la mano más poderosa.
+🥊 Hook (Gancho): Golpe curvo hacia los costados del oponente (cabeza o cuerpo).
+🥊 Uppercut (Ascendente): Golpe de abajo hacia arriba dirigido al mentón.
+
+🔹 Tip: Siempre regresa la mano a la posición de guardia después de lanzar un golpe.
+
+4. Defensa Básica
+🛡️ Esquivar: Mueve la cabeza hacia los lados para evitar golpes.
+🛡️ Bloquear: Usa los guantes y brazos para absorber impactos.
+🛡️ Paso atrás: Retrocede rápido para salir del rango de ataque.
+
+5. Entrenamiento Básico
+💪 Sombra (Shadowboxing): Practica golpes y movimientos sin oponente.
+💪 Saco de boxeo: Trabaja la potencia y resistencia.
+💪 Sparring (con compañero): Simula un combate real (cuando tengas más experiencia).
+💪 Saltos de cuerda: Mejora el juego de pies y la resistencia.
 
 
 
