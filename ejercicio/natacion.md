@@ -30,6 +30,15 @@ Se puede practicar en piscinas, lagos, ríos o el mar, y es ideal tanto para el 
 ⚡ Intermedio: Aumenta la distancia y mejora la técnica.
 🔥 Avanzado: Entrena resistencia, velocidad y técnicas avanzadas.
 
+# CONSEJOS PARA MEJORAR EN NATACIÓN
+🔹 Usa gafas y gorro para mayor comodidad.
+🔹 Calienta antes de entrar al agua para evitar calambres.
+🔹 Mantén una buena postura y técnica para evitar lesiones.
+🔹 Varía los estilos de natación para trabajar todo el cuerpo.
+🔹 No te exijas demasiado al principio, mejora progresivamente.
+🔹 Hidrátate bien, aunque no sudes visiblemente, pierdes líquidos.
+🔹 Nada en zonas seguras y sigue las normas de seguridad en aguas abiertas.
+
 
 
 
