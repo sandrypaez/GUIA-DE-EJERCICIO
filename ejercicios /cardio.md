@@ -25,3 +25,10 @@ El cardio incluye ejercicios como correr, saltar la cuerda, nadar, andar en bici
 3. Combínalo con fuerza:
 🏋️‍♂️ Incluir ejercicios de pesas o calistenia mejora los resultados y evita la pérdida de músculo.
 
+# CONSEJOS PARA MEJORAR EL CARDIO
+🔹 Empieza poco a poco: No intentes hacer sesiones largas si no estás acostumbrado.
+🔹 Escucha a tu cuerpo: No te sobreexijas, si sientes mareo o fatiga extrema, descansa.
+🔹 Varía los ejercicios: Alterna correr, saltar, nadar o HIIT para evitar aburrimiento.
+🔹 Hidrátate bien: El cardio hace que sudes mucho, así que bebe suficiente agua.
+🔹 Combina con una buena alimentación: Para obtener mejores resultados, cuida tu dieta.
+
