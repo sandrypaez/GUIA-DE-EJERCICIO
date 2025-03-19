@@ -13,3 +13,23 @@ Se realiza en un box (gimnasio especializado en CrossFit) y los entrenamientos c
 ✔️ Aumenta la velocidad, agilidad y potencia explosiva.
 ✔️ Es dinámico y motivador, evitando la rutina aburrida.
 ✔️ Favorece el trabajo en equipo y la comunidad.
+
+# ¿CÓMO REALIZAR CROSSFIT?
+1. Conoce los ejercicios básicos:
+✅ Levantamientos olímpicos: Clean & Jerk, Snatch.
+✅ Ejercicios con peso corporal: Sentadillas, flexiones, burpees.
+✅ Trabajo con pesas: Kettlebells, mancuernas, barras.
+✅ Movimientos gimnásticos: Dominadas, anillas, handstand push-ups.
+✅ Ejercicios cardiovasculares: Remo, sprints, saltos a la cuerda.
+
+2. Estructura de una sesión de CrossFit:
+🔹 Calentamiento: Movilidad y activación muscular.
+🔹 Parte técnica: Aprendizaje o mejora de movimientos.
+🔹 WOD (Workout of the Day): Entrenamiento del día de alta intensidad.
+🔹 Enfriamiento y estiramientos.
+
+3. Adapta el entrenamiento a tu nivel:
+👶 Principiante: Movimientos básicos con poco peso.
+💪 Intermedio: Aumenta la intensidad y técnica.
+🔥 Avanzado: Completa entrenamientos con pesos y tiempos exigentes.
+
