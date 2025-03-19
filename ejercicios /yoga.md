@@ -14,3 +14,27 @@ Existen varios estilos de yoga, desde el suave Hatha Yoga hasta el dinámico Vin
 ✔️ Estimula la circulación sanguínea y mejora la digestión.
 ✔️ Aporta equilibrio emocional y bienestar general.
 
+# CÓMO REALIZAR YOGA?
+1. Conoce los estilos más populares:
+🌿 Hatha Yoga: Suave y enfocado en la alineación.
+🔥 Vinyasa Yoga: Fluido y dinámico, sincronizado con la respiración.
+💪 Ashtanga Yoga: Exigente y estructurado, con secuencias fijas.
+🧘 Yin Yoga: Posturas sostenidas por más tiempo para estirar profundamente.
+✨ Kundalini Yoga: Mezcla respiración, posturas y meditación para activar la energía.
+
+2. Posturas básicas (Asanas):
+🔹 Tadasana (Postura de la montaña): Base para mejorar la postura.
+🔹 Adho Mukha Svanasana (Perro boca abajo): Estiramiento de todo el cuerpo.
+🔹 Bhujangasana (Cobra): Fortalece la espalda y abre el pecho.
+🔹 Balasana (Postura del niño): Relajación y descanso.
+🔹 Savasana (Postura del cadáver): Relajación final para meditar.
+
+3. Práctica de respiración (Pranayama):
+💨 Respiración abdominal: Para calmar la mente.
+🔥 Kapalabhati: Respiración energética y revitalizante.
+🌬️ Nadi Shodhana: Respiración alterna para equilibrar el cuerpo.
+
+4. Sesión básica de yoga:
+⏳ Duración: 15-60 minutos.
+✅ Secuencia: Comienza con respiración → Posturas → Relajación final.
+
